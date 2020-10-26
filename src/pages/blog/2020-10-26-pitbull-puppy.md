@@ -1,8 +1,8 @@
 ---
 templateKey: blog-post
-title: Pitbull Puppy
+title: Pitbull Puppies
 date: 2020-10-26T04:01:58.429Z
-description: dsfcdfvdfgvdgdfg
+description: Get the detailed information on pitbull pupppies with all the characteristics.
 featuredpost: true
 featuredimage: /img/pppp.jpg
 tags:
