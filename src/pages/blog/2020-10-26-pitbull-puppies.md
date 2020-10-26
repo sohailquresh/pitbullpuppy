@@ -13,6 +13,8 @@ tags:
 ---
 Even as the time period “pit bull” conjures a selected photograph in many canine lover’s heads, the pit bull isn't always an "authentic" breed. the majority don't forget the pit bull to be more of a “kind” of canine and consist of breeds such as the American Staffordshire terrier, the yank pit bull, and the Staffordshire bull terrier in this group. the time period “pit bull” regrettably has received a bad connotation, as several cities and municipalities inside u.s. and Canada have enacted bans on those kinds of Dogs out of the situation for expanded aggression within the breed. the incapability to definitively visually pick out anyone canine as a “pit bull” calls those concerns into query, however, and dogs of the pit bull kind could make first-rate own family puppies, as well as serve faithfully as police puppies, provider dogs for the handicapped, and remedy dogs.
 
+![](/img/pppp.jpg)
+
 ## Well-known appearance
 
 Pitbull puppies usually have a powerful, blockish head with pronounced masseter (cheek) muscle mass that regrettably has historically contributed to their use as fighting dogs. their necks are thick and properly-muscled and cause an effective, deep chest. pit bulls are stocky dogs with powerful bodies and strength that exceeds their size.
